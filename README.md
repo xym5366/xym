@@ -13,7 +13,7 @@
 1. 都是由本人亲自技术筛选，质量上乘，可谓居家旅行必备之良药。👓
 
 ![a6x00916a72j7dbfxmjuv62](https://user-images.githubusercontent.com/4293403/36296457-510f4116-1328-11e8-9400-b20cb8a3f0f5.png)
-
+![alibaba2](https://user-images.githubusercontent.com/4293403/36296589-ed41a1aa-1328-11e8-9241-e9ddd0ddc48f.png)
 
 **xymOS系统制作手记**
 -------------
